@@ -1,3 +1,3 @@
 # Vladislav Ogorodnyi
 
-## Vladislav Ogorodnyi#6307
+## discord Vladislav Ogorodnyi#6307
